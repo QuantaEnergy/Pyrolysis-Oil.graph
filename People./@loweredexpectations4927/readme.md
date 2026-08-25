@@ -5,3 +5,4 @@ https://m.youtube.com/@loweredexpectations4927
 - [Turning PEX Into Gasoline - Why PEX Is Better Than Copper](https://youtu.be/MzRIg7YXrr0)
 - [Is the Fuel Crisis Solution Hiding In Plain Sight - Styrofoam Salvation or Serious Danger.](https://youtu.be/OLrmRsavJHU)
 - [Polypropylene Fuel - Cost, Struggles and Performance](https://youtu.be/HFdrT0rFzg4)
+- [What The Heck Is He Up To Now - And WHY ?!? CO2 Pyrolysis.](https://youtu.be/WtUdVCe_KTw)
