@@ -6,5 +6,5 @@ https://m.youtube.com/@loweredexpectations4927
 - [Is the Fuel Crisis Solution Hiding In Plain Sight - Styrofoam Salvation or Serious Danger.](https://youtu.be/OLrmRsavJHU)
 - [Polypropylene Fuel - Cost, Struggles and Performance](https://youtu.be/HFdrT0rFzg4)
 - [What The Heck Is He Up To Now - And WHY ?!? CO2 Pyrolysis.](https://youtu.be/WtUdVCe_KTw)
-- [Turning Polypropylene Into Fuel (Almost Broke Me)](
+- [Turning Polypropylene Into Fuel (Almost Broke Me)](https://youtu.be/HFdrT0rFzg4)
 - [Making Diesel With Plastic & Salt - No, I'm Not Joking.](https://youtu.be/WX3Hm910JgU)
